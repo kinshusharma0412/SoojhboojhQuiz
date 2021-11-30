@@ -1,1 +1,1 @@
-# SoojhBoojhQuizResult.github.io
+# kinshusharma0412.github.io
